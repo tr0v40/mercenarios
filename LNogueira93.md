@@ -1,0 +1,2 @@
+  Há mais ou menos 6 anos atrás conheci o universo da programação (Lader) através do curso técnico de Automação Industrial no SENAI "Mariano Ferraz", o que me fez querer aprender mais e mais. Hoje atuando com programação e blocos num sistema baseado em java, tive a oportunidade de ingressar nessa instituição e tenho desejo em trabalhar com o desenvolvimento de sistemas.
+  Tenho desejo de trabalhar em alguma startup, como por exemplo a "Startup Farm", que tem mais de 250 startups no portfólio, com muitos patrocínios, realizando trabalhos em mais de 110 paises.
