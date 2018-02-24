@@ -1,6 +1,6 @@
 #Melhores atletas
+cristiano ronaldo
 Jade Barbosa
-Ayrton Senna
 Maurício Dumbo
 Oscar
 Aldo Ribeiro
